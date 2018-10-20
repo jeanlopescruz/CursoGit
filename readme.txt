@@ -1,1 +1,1 @@
-a primeira frase do dia é legal 
+a primeira frase do dia é Deus é bom
